@@ -1,2 +1,2 @@
-# kojot1000.github.io
+# nadpis
 ahojte vsetci 
